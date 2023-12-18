@@ -3,5 +3,5 @@
 - kermit dukke
 - ny jakke(sort og lang til numse varmer)
 - stjerne ting (nøglering for ex.)
-- 
+- kram fra Farba
 
