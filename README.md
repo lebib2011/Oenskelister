@@ -1,2 +1,2 @@
-# -nskelister
-en mappe med lebib's ønskelister
+# Ønskelister
+Det her er en mappe med lebib's ønskelister.
