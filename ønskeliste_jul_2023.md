@@ -1,7 +1,14 @@
 # Bibbes ønskeliste for julen 2023
 
 - kermit dukke
-- ny jakke(sort og lang til numse varmer)
 - stjerne ting (nøglering for ex.)
-- kram fra Farba
-
+- sort gi (A1)
+- penge til ELDORADO (gaming cafe)
+- penge til/ elektrisk guitar (med udstyr)
+- klaver/ godt keyboard
+- penge
+- slik
+- five nights at freddys spil (start med 1'eren)
+- kram fra Farba og alle andre
+- halloween/ jule ting/ pynt bare fordig
+- grumpy kat bamse (far)
